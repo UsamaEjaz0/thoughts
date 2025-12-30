@@ -1,1 +1,4 @@
-
+# God, religion and peace
+## 1. Existence of God
+We humans don’t have enough knowledge to prove/disprove the existence of God. There are countless logical arguments that can be made from both sides. After studying Quantum Physics a bit, I found myself evaluating everything in percentages/probabilities. There is no question to which the answer is a 100% certain. Heat travels from hot body to a cold body. However, there’s a tiny probability of it happening in reverse. But the probability is so low that, it almost never happens. In the debates, arguments and the studies put forward by researchers, scholars and authors, there are always ways to logically choose either side. As they say, a good salesman can sell combs to a bald person. Humans are complex and I’m writing a version that would provide me clarity and satisy me the most. 
+I believe God exists but for different reasons.
